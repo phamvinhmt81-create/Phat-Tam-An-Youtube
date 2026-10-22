@@ -1,4 +1,4 @@
-markdown
+
 # 📝 KỊCH BẢN VIDEO: LỜI PHẬT DẠY VỀ BÌNH AN
 
 ## 🎙️ Lời thoại mở đầu (0:00 - 0:30)
